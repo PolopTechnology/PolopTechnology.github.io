@@ -1,1 +1,0 @@
-# PolopTechnology.github.io
